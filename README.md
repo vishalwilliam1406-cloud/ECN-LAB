@@ -27,12 +27,12 @@
 
 
 
+<img width="1921" height="1441" alt="IMG20260602101736" src="https://github.com/user-attachments/assets/8852c74e-a3ee-4ee5-8e89-36da0378b6c3" />
 
 
+**OBSERVATION:**
 
-
-
-
+<img width="1934" height="1450" alt="IMG20260602101748" src="https://github.com/user-attachments/assets/70f116a2-9dfc-41b9-842a-1ef8fda09294" />
 
 
 **PROCEDURE:**
